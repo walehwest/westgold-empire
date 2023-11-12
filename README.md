@@ -1,2 +1,2 @@
-www.westgoldempire.com.ng
+# www.westgoldempire.com.ng
 cryptocurrency trading website 
